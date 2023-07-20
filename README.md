@@ -2,7 +2,7 @@
 - 👀 I’m interested in 🚀
 - 🌱 I’m currently learning Everything  
 - 💞️ I’m looking to collaborate on my passion 
-- 📫 Contact me on my 📧
+- 📫 Contact me on my Mail: kamalxs321@gmail.com
 
 <!---
 kskathe/kskathe is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
